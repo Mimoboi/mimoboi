@@ -1,4 +1,4 @@
-[YOUR NAME]
+ANSH a.k.a MiMØ
 
 I build things, test ideas, break them, rebuild them, and keep the ones that turn into something useful.
 
